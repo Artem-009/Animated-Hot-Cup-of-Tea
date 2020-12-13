@@ -1,1 +1,2 @@
-# Animated-Hot-Cup-of-Tea
+# Animated Hot Cup of Tea
+
